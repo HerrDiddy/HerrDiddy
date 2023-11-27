@@ -1,6 +1,7 @@
 # WELCOME!!!
 ## An Italian Chef in the New IT World...
-### enjoying this New Adventure , afetr years  MAYBE i'm Finally ready to start this new trip , full of stress and curiosity
+## Ready to undertake this New Adventure , full of stress and curiosity!!!
+### sorry but yesterday was my birthaday so i was a bit to sloooow 
 ![image](https://github.com/HerrDiddy/HerrDiddy/assets/152165745/c583ca2a-17d7-4dbf-8497-ae273750443f)
 
 
