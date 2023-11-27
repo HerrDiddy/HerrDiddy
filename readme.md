@@ -1,6 +1,6 @@
 # WELCOME!!!
 ## An Italian Chef in the New IT World...
-### enjoyng this New Adventure 
+### enjoying this New Adventure 
 # ABOUT ME
 
 1. Travel
