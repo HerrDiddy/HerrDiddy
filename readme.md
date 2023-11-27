@@ -1,6 +1,6 @@
 # WELCOME!!!
 ## An Italian Chef in the New IT World...
-## Ready to undertake this New Adventure , full of stress and curiosity!!!
+## Ready to undertake this New Adventure , full of stress and curiosity!!! Will be hard ,but going out of my confort zone, after years, will be the nicest thing...
 ### and sorry to have been so sloooow, my Birthday's weekend just ended yesterday !!! 😃 
 
 ![image](https://github.com/HerrDiddy/HerrDiddy/assets/152165745/c583ca2a-17d7-4dbf-8497-ae273750443f)
